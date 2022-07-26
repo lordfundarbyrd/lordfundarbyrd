@@ -1,4 +1,4 @@
-### Hi there 👋
+Main account is [zachnorman02](https://github.com/zachnorman02)
 
 <!--
 **lordfundarbyrd/lordfundarbyrd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
